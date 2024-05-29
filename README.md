@@ -1,0 +1,1 @@
+# Language-Pack-Kurdish-Sorani-for-DiscordPlus
